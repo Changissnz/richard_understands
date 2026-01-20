@@ -87,6 +87,10 @@ If my life was entirely other peoples' thoughts, opinions, and decisions. Genera
 
 ------------------------------------------------------------------------------------------------------------------------------------
 
+<img width="1024" height="1024" alt="Gemini_Generated_Image_3f2seu3f2seu3f2s" src="https://github.com/user-attachments/assets/6c957dc5-d432-4c5e-8063-870e8fd0468e" />
+
+------------------------------------------------------------------------------------------------------------------------------------
+
 <img width="1024" height="1024" alt="Gemini_Generated_Image_8wov7v8wov7v8wov" src="https://github.com/user-attachments/assets/eafb8648-8bc8-4e6d-8673-d90bdf13cac7" />
 
 ------------------------------------------------------------------------------------------------------------------------------------
